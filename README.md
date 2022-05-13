@@ -5,4 +5,4 @@ _Estudante do ensino médio_
 >All of the stars have a reason to shine 
 >                            -Lil Peep
 
-[Star Shopping - Lil Peep](youtube.starshoppinglilpeep.com)
+[Star Shopping - Lil Peep](https://www.youtube.com/watch?v=PUqDflbj5Xg&t=1s)
